@@ -49,7 +49,6 @@ https://zentravels.com/
 
 https://www.mpoweredrealestate.com/
 
-https://marnicustravel.com/
 
 
 My Shopify Portfolio:
