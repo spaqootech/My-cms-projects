@@ -55,6 +55,8 @@ https://www.mpoweredrealestate.com/
 
 My Shopify Portfolio:
 
+https://maglift.shop/
+
 https://www.boka.com/
 
 https://www.marieleboutique.com/
