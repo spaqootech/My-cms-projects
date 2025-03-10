@@ -56,10 +56,15 @@ https://www.mpoweredrealestate.com/
 My Shopify Portfolio:
 
 https://maglift.shop/
+
 https://magbag.store/
+
 https://alifscarves.store/
+
 https://www.hautehijab.com/
+
 https://www.boka.com/
+
 https://www.marieleboutique.com/
 https://us.innisfree.com/
 
